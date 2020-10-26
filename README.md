@@ -1,2 +1,0 @@
-# alanwar-est
-Alanwar Establishment
